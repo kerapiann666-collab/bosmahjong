@@ -1,0 +1,2 @@
+# bosmahjong.github.io
+Mantap
